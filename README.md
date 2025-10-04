@@ -1,2 +1,2 @@
 # first-repository
-Authour ---> Aditya Dubey .
+Authour ---> ADITYA DUBEY
